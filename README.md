@@ -1,0 +1,2 @@
+# premium-zebra-stone-cab-001-zebra-stone-cabochon-band-cr
+Tired of losing track of your zebra stone cabochon projects—mixing up stone patterns, forgetting cutting steps, or misplacing band measurements? This Notion template brings order to your creative chaos.  The Zebra Stone Cabochon &amp; Band Craft Workshop template gives you a dedicated digital workspace to plan, track, and perfect every piece—from raw z
